@@ -12,5 +12,7 @@
 ## YouTube
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
+* How to Link Words - Speak English Fluently - Pronunciation Lesson
+  * https://www.youtube.com/watch?v=nbnRm_3_QKU
 * Speak English Fluently - 5 Steps to Improve Your English Fluency
   * https://www.youtube.com/watch?v=KaA_mxga3PQ
