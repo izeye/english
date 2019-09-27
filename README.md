@@ -2,6 +2,8 @@
 ## YouTube
 * Consonant Sound / v / as in "very" – American English Pronunciation
   * https://www.youtube.com/watch?v=U5Oro6v0klg
+* Consonant Sound / ŋ / (NG) as in "thing"- American English Pronunciation
+  * https://www.youtube.com/watch?v=5xVq8T88oJw
 * Consonant Sound Flap 'T' / t̬ / as in "water" – American English Pronunciation
   * https://www.youtube.com/watch?v=9b-UIkuwOdU
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
