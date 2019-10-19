@@ -8,6 +8,8 @@
   * https://www.youtube.com/watch?v=EZb_EWVCUoE
 * Consonant Sound Flap 'T' / t̬ / as in "water" – American English Pronunciation
   * https://www.youtube.com/watch?v=9b-UIkuwOdU
+* Consonant Sound / ʒ / as in "vision" – American English Pronunciation
+  * https://www.youtube.com/watch?v=k8ImSmVOSVA
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
 * How to Link Words - Speak English Fluently - Pronunciation Lesson
