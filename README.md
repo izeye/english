@@ -16,6 +16,8 @@
   * https://www.youtube.com/watch?v=ky7Jh9Bbjts
 * Consonant Sound / r / as in "run"- American English Pronunciation
   * https://www.youtube.com/watch?v=q5a2-KuHkBU
+* Consonant Sound / l / as in "let"- American English Pronunciation
+  * https://www.youtube.com/watch?v=JamM8TgB_AA
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
 * How to Link Words - Speak English Fluently - Pronunciation Lesson
