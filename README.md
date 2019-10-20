@@ -12,6 +12,8 @@
   * https://www.youtube.com/watch?v=k8ImSmVOSVA
 * Consonant Sound / dʒ / as in "job" – American English Pronunciation
   * https://www.youtube.com/watch?v=zJJ3hhHtjtI
+* Consonant Sound / z / as in "zoo" – American English Pronunciation
+  * https://www.youtube.com/watch?v=ky7Jh9Bbjts
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
 * How to Link Words - Speak English Fluently - Pronunciation Lesson
