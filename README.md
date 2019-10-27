@@ -27,6 +27,14 @@
   * https://www.youtube.com/watch?v=mynucZiy-Ug
 * Vowel Sound / ɛ / as in "bed" - American English Pronunciation
   * https://www.youtube.com/watch?v=OLG3cCLcNiI
+* Vowel Sound / ə / (Schwa) as in "ago" - American English Pronunciation
+  * https://www.youtube.com/watch?v=m1mDSUSwNls
+* Vowel Sound / ʌ / as in "us"- American English Pronunciation
+  * https://www.youtube.com/watch?v=X1utTZqC3AI
+* Vowel Sound / i / as in "be" - American English Pronunciation [UPDATED]
+  * https://www.youtube.com/watch?v=PIu5WDIco0I
+* Vowel Sound / ɪ / as in "it" - American English Pronunciation
+  * https://www.youtube.com/watch?v=Ok_HG-0lNCA
 
 ### Misc.
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
