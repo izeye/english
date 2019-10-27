@@ -1,5 +1,8 @@
 # english
 ## YouTube
+### American English Pronunciation
+* Bed or Bad? Head or Had? Men or Man? American English Pronunciation
+  * https://www.youtube.com/watch?v=GnWPcvI20Uk
 * Consonant Sound / v / as in "very" – American English Pronunciation
   * https://www.youtube.com/watch?v=U5Oro6v0klg
 * Consonant Sound / ŋ / (NG) as in "thing"- American English Pronunciation
@@ -18,12 +21,18 @@
   * https://www.youtube.com/watch?v=q5a2-KuHkBU
 * Consonant Sound / l / as in "let"- American English Pronunciation
   * https://www.youtube.com/watch?v=JamM8TgB_AA
+* How to Pronounce R and L Sounds - Comparison - American English Pronunciation
+  * https://www.youtube.com/watch?v=iH-9lqrGbBU
+* Vowel Sound / æ / as in "cat" - American English Pronunciation
+  * https://www.youtube.com/watch?v=mynucZiy-Ug
+* Vowel Sound / ɛ / as in "bed" - American English Pronunciation
+  * https://www.youtube.com/watch?v=OLG3cCLcNiI
+
+### Misc.
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
 * How to Link Words - Speak English Fluently - Pronunciation Lesson
   * https://www.youtube.com/watch?v=nbnRm_3_QKU
-* How to Pronounce R and L Sounds - Comparison - American English Pronunciation
-  * https://www.youtube.com/watch?v=iH-9lqrGbBU
 * How to Pronounce Work vs. Walk: American English
   * https://www.youtube.com/watch?v=slq3oXRF3EA
 * How to Pronounce WORK vs. WALK [ ForB English Lesson ]
