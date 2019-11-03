@@ -35,6 +35,10 @@
   * https://www.youtube.com/watch?v=PIu5WDIco0I
 * Vowel Sound / ɪ / as in "it" - American English Pronunciation
   * https://www.youtube.com/watch?v=Ok_HG-0lNCA
+* Vowel Sound / u / as in "blue"- American English Pronunciation
+  * https://www.youtube.com/watch?v=lkM6CKBM2ns
+* Vowel Sound / ʊ / as in "put" - American English Pronunciation
+  * https://www.youtube.com/watch?v=moLTR-dLQQY
 
 ### Misc.
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
