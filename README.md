@@ -40,6 +40,10 @@
 * Vowel Sound / ʊ / as in "put" - American English Pronunciation
   * https://www.youtube.com/watch?v=moLTR-dLQQY
 
+### Classes
+* 민병철유폰
+  * 프리토킹 Level 7-8: Unit 1-80
+
 ### Misc.
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
