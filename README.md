@@ -47,6 +47,8 @@
   * https://www.youtube.com/watch?v=4kPJLHiiGdU
 * Vowel Sound / ɔ / as in "on" - American English Pronunciation
   * https://www.youtube.com/watch?v=pr_KAu-_Hmo
+* Diphthong Sound / aɪ / as in "like" – American English Pronunciation
+  * https://www.youtube.com/watch?v=8uD-GuuSgyk
 
 ### Classes
 * 민병철유폰
