@@ -43,6 +43,8 @@
   * https://www.youtube.com/watch?v=lkM6CKBM2ns
 * Vowel Sound / ʊ / as in "put" - American English Pronunciation
   * https://www.youtube.com/watch?v=moLTR-dLQQY
+* Vowel Sound / oʊ / as in "go" - American English Pronunciation
+  * https://www.youtube.com/watch?v=4kPJLHiiGdU
 
 ### Classes
 * 민병철유폰
