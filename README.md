@@ -45,6 +45,8 @@
   * https://www.youtube.com/watch?v=moLTR-dLQQY
 * Vowel Sound / oʊ / as in "go" - American English Pronunciation
   * https://www.youtube.com/watch?v=4kPJLHiiGdU
+* Vowel Sound / ɔ / as in "on" - American English Pronunciation
+  * https://www.youtube.com/watch?v=pr_KAu-_Hmo
 
 ### Classes
 * 민병철유폰
