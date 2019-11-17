@@ -23,10 +23,6 @@
   * https://www.youtube.com/watch?v=JamM8TgB_AA
 * How to Pronounce R and L Sounds - Comparison - American English Pronunciation
   * https://www.youtube.com/watch?v=iH-9lqrGbBU
-* Vowel Sound / æ / as in "cat" - American English Pronunciation
-  * https://www.youtube.com/watch?v=mynucZiy-Ug
-* Vowel Sound / ɛ / as in "bed" - American English Pronunciation
-  * https://www.youtube.com/watch?v=OLG3cCLcNiI
 * Vowel Sound / ə / (Schwa) as in "ago" - American English Pronunciation
   * https://www.youtube.com/watch?v=m1mDSUSwNls
 * Vowel Sound / ʌ / as in "us"- American English Pronunciation
@@ -35,6 +31,12 @@
   * https://www.youtube.com/watch?v=PIu5WDIco0I
 * Vowel Sound / ɪ / as in "it" - American English Pronunciation
   * https://www.youtube.com/watch?v=Ok_HG-0lNCA
+* Vowel Sound / eɪ / as in "make" - American English Pronunciation
+  * https://www.youtube.com/watch?v=0RXzfRcjk-s
+* Vowel Sound / ɛ / as in "bed" - American English Pronunciation
+  * https://www.youtube.com/watch?v=OLG3cCLcNiI
+* Vowel Sound / æ / as in "cat" - American English Pronunciation
+  * https://www.youtube.com/watch?v=mynucZiy-Ug
 * Vowel Sound / u / as in "blue"- American English Pronunciation
   * https://www.youtube.com/watch?v=lkM6CKBM2ns
 * Vowel Sound / ʊ / as in "put" - American English Pronunciation
