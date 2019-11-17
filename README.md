@@ -49,6 +49,8 @@
   * https://www.youtube.com/watch?v=pr_KAu-_Hmo
 * Diphthong Sound / aɪ / as in "like" – American English Pronunciation
   * https://www.youtube.com/watch?v=8uD-GuuSgyk
+* Diphthong Sound / aʊ / as in "cloud" – American English Pronunciation
+  * https://www.youtube.com/watch?v=-V690OA75bA
 
 ### Classes
 * 민병철유폰
