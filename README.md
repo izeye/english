@@ -63,6 +63,8 @@
   * https://www.youtube.com/watch?v=slq3oXRF3EA
 * How to Pronounce WORK vs. WALK [ ForB English Lesson ]
   * https://www.youtube.com/watch?v=AX0QM6xRCT4
+* How to speak in English? (Shadowing Technique Explained)
+  * https://www.youtube.com/watch?v=AnNf_z4LQ7A
 * How to Use Can, Could and Be Able To - English Modal Verbs for Ability
   * https://www.youtube.com/watch?v=TqES1mwxjpI
 * Pronunciation 1: F vs P
