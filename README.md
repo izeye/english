@@ -52,13 +52,11 @@
 * Diphthong Sound / aʊ / as in "cloud" – American English Pronunciation
   * https://www.youtube.com/watch?v=-V690OA75bA
 
-### Classes
-* 민병철유폰
-  * 프리토킹 Level 7-8: Unit 1-80
-
 ### Misc.
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
+* How To Improve Your Intonation In English - Top 3 Ideas
+  * https://www.youtube.com/watch?v=kWrDsFXbNNg
 * How to Link Words - Speak English Fluently - Pronunciation Lesson
   * https://www.youtube.com/watch?v=nbnRm_3_QKU
 * How to Pronounce Work vs. Walk: American English
@@ -75,3 +73,7 @@
   * https://www.youtube.com/watch?v=KaA_mxga3PQ
 * The TH Sound In English
   * https://www.youtube.com/watch?v=h5LO0hHGfQg
+
+## Classes
+* 민병철유폰
+  * 프리토킹 Level 7-8: Unit 1-80
