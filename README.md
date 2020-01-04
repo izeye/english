@@ -53,6 +53,8 @@
   * https://www.youtube.com/watch?v=-V690OA75bA
 
 ### Misc.
+* [영어표현] #warm VS worm / form VS firm 비슷한 단어 발음비교!!
+  * https://www.youtube.com/watch?v=omcDr-bTWVc
 * English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
   * https://www.youtube.com/watch?v=cX2dMKYYZI4
 * How To Improve Your Intonation In English - Top 3 Ideas
