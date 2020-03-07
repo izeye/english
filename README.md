@@ -52,6 +52,11 @@
 * Diphthong Sound / aʊ / as in "cloud" – American English Pronunciation
   * https://www.youtube.com/watch?v=-V690OA75bA
 
+### Oxford Online English
+#### Spoken English
+* How To Read Dates In English - Spoken English Lesson
+  * https://www.youtube.com/watch?v=Vw54Nu1SXcE
+
 ### Misc.
 * [영어표현] #warm VS worm / form VS firm 비슷한 단어 발음비교!!
   * https://www.youtube.com/watch?v=omcDr-bTWVc
