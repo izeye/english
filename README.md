@@ -66,6 +66,8 @@
   * https://www.youtube.com/watch?v=kWrDsFXbNNg
 * How to Link Words - Speak English Fluently - Pronunciation Lesson
   * https://www.youtube.com/watch?v=nbnRm_3_QKU
+* How to Pronounce CLOTHES (CLOSE) /kloʊz/- American English Pronunciation Lesson
+  * https://www.youtube.com/watch?v=VA9xKx-2JrY
 * How to Pronounce Work vs. Walk: American English
   * https://www.youtube.com/watch?v=slq3oXRF3EA
 * How to Pronounce WORK vs. WALK [ ForB English Lesson ]
