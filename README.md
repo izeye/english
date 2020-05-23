@@ -87,5 +87,6 @@
 
 ## Classes
 * 민병철유폰
-  * 프리토킹 Level 7-8: Unit 1-80
-  * 프리토킹 Level 9-10: Unit 1-80
+  * 프리토킹 토픽 Level 7-8: Unit 1-80
+  * 프리토킹 토픽 Level 9-10: Unit 1-80
+  * 프리토킹 토론 Level 11~12: Unit 1-40
