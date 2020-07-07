@@ -87,7 +87,8 @@
 
 ## Classes
 * 민병철유폰
-  * 비즈니스 전화 Level 5~8: Unit 1-12
   * 프리토킹 토픽 Level 7~8: Unit 1-80
   * 프리토킹 토픽 Level 9~10: Unit 1-80
   * 프리토킹 토론 Level 11~12: Unit 1-40
+  * 비즈니스 전화 Level 5~8: Unit 1-12
+  * 비즈니스 전화 Level 7~10: Unit 1-12
