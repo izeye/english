@@ -92,3 +92,4 @@
   * 프리토킹 토론 Level 11~12: Unit 1-40
   * 비즈니스 전화 Level 5~8: Unit 1-12
   * 비즈니스 전화 Level 7~10: Unit 1-12
+  * 비즈니스 이메일 Level 5~8: Unit 1-12
