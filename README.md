@@ -94,3 +94,4 @@
   * 비즈니스 전화 Level 7~10: Unit 1-12
   * 비즈니스 이메일 Level 5~8: Unit 1-12
   * 비즈니스 이메일 Level 7~10: Unit 1-12
+  * 비즈니스 미팅 Level 7~10: Unit 1-20
