@@ -16,3 +16,4 @@
 #### 2st Grade Spelling Bee Words
 
 * [Spelling Bee List 1](https://spellquiz.com/spelling-bee-words/2nd-grade-spelling-bee-words/spelling-bee-list-1)
+* [Spelling Bee List 2](https://spellquiz.com/spelling-bee-words/2nd-grade-spelling-bee-words/spelling-bee-list-2)
