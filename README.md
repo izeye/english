@@ -58,32 +58,20 @@
   * https://www.youtube.com/watch?v=Vw54Nu1SXcE
 
 ### Misc.
-* [영어표현] #warm VS worm / form VS firm 비슷한 단어 발음비교!!
-  * https://www.youtube.com/watch?v=omcDr-bTWVc
-* English Pronunciation Secrets - 5 Tips to Improve English Pronunciation
-  * https://www.youtube.com/watch?v=cX2dMKYYZI4
-* How To Improve Your Intonation In English - Top 3 Ideas
-  * https://www.youtube.com/watch?v=kWrDsFXbNNg
-* How to Link Words - Speak English Fluently - Pronunciation Lesson
-  * https://www.youtube.com/watch?v=nbnRm_3_QKU
-* How to Pronounce CLOTHES (CLOSE) /kloʊz/- American English Pronunciation Lesson
-  * https://www.youtube.com/watch?v=VA9xKx-2JrY
-* How to Pronounce Work vs. Walk: American English
-  * https://www.youtube.com/watch?v=slq3oXRF3EA
-* How to Pronounce WORK vs. WALK [ ForB English Lesson ]
-  * https://www.youtube.com/watch?v=AX0QM6xRCT4
-* How to speak in English? (Shadowing Technique Explained)
-  * https://www.youtube.com/watch?v=AnNf_z4LQ7A
-* How to Use Can, Could and Be Able To - English Modal Verbs for Ability
-  * https://www.youtube.com/watch?v=TqES1mwxjpI
-* Pronunciation 1: F vs P
-  * https://www.youtube.com/watch?v=SDF_Gnwqkd0
-* Pronunciation - QU
-  * https://www.youtube.com/watch?v=xHPvCJyfsbw
-* Speak English Fluently - 5 Steps to Improve Your English Fluency
-  * https://www.youtube.com/watch?v=KaA_mxga3PQ
-* The TH Sound In English
-  * https://www.youtube.com/watch?v=h5LO0hHGfQg
+* [[영어표현] #warm VS worm / form VS firm 비슷한 단어 발음비교!!](https://www.youtube.com/watch?v=omcDr-bTWVc)
+* [English Pronunciation Secrets - 5 Tips to Improve English Pronunciation](https://www.youtube.com/watch?v=cX2dMKYYZI4)
+* [How To Improve Your Intonation In English - Top 3 Ideas](https://www.youtube.com/watch?v=kWrDsFXbNNg)
+* [How to Link Words - Speak English Fluently - Pronunciation Lesson](https://www.youtube.com/watch?v=nbnRm_3_QKU)
+* [How to Pronounce CLOTHES (CLOSE) /kloʊz/- American English Pronunciation Lesson](https://www.youtube.com/watch?v=VA9xKx-2JrY)
+* [How to pronounce WANT TO and NEED TO /How to use WANT correctly / How to use NEED correctly](https://www.youtube.com/watch?v=4WynQxxp-1w)
+* [How to Pronounce Work vs. Walk: American English](https://www.youtube.com/watch?v=slq3oXRF3EA)
+* [How to Pronounce WORK vs. WALK [ ForB English Lesson ]](https://www.youtube.com/watch?v=AX0QM6xRCT4)
+* [How to speak in English? (Shadowing Technique Explained)](https://www.youtube.com/watch?v=AnNf_z4LQ7A)
+* [How to Use Can, Could and Be Able To - English Modal Verbs for Ability](https://www.youtube.com/watch?v=TqES1mwxjpI)
+* [Pronunciation 1: F vs P](https://www.youtube.com/watch?v=SDF_Gnwqkd0)
+* [Pronunciation - QU](https://www.youtube.com/watch?v=xHPvCJyfsbw)
+* [Speak English Fluently - 5 Steps to Improve Your English Fluency](https://www.youtube.com/watch?v=KaA_mxga3PQ)
+* [The TH Sound In English](https://www.youtube.com/watch?v=h5LO0hHGfQg)
 
 ## Cambridge Dictionary
 ### Grammar
